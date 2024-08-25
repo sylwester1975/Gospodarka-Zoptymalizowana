@@ -1,0 +1,2 @@
+# Gospodarka-Zoptymalizowana
+Gospodarka Zoptymalizowana
